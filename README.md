@@ -28,4 +28,4 @@ The debate revolves around a policy shift:
 ---  
 📚 Written by Beema’s Fincon | Your guide to unraveling tax complexities.  
 
-🌐 **Also available at**: [Rebate Debate 87A](https://spice-ball-ed6.notion.site/Rebate-Debate-87A-17e6d2c231028092a546f706912f2b44)  
+🌐 **Read More on Notion**: [![Notion Icon](https://upload.wikimedia.org/wikipedia/commons/4/45/Notion_app_logo.png)](https://spice-ball-ed6.notion.site/Rebate-Debate-87A-17e6d2c231028092a546f706912f2b44) 
